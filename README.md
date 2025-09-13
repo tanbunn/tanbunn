@@ -1,5 +1,5 @@
   
-  　    　  　  　    　   　   　   　   [ata](https://angxlpraize.atabook.org/)   　 [straw](https://angxlpraize.straw.page/) <img src=<img width="736" height="993" alt="بدون اسم215_20250913084426" src="https://github.com/user-attachments/assets/96597ba9-42ae-4b8a-ac05-2f67ea3922f8" />
+  　    　  　  　    　   　   　   　   [ata](https://angxlpraize.atabook.org/)   　 [straw](https://angxlpraize.straw.page/) <img width="736" height="993" alt="بدون اسم215_20250913084426" src="https://github.com/user-attachments/assets/96597ba9-42ae-4b8a-ac05-2f67ea3922f8" />
  alt="OWARI">
              ˚₊‧𐂂 Likes+Dislikes 𖠰 ‧₊˚
 ˚        ✦      .    .    ˚  .           . ✦       ˚         .
